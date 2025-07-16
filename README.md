@@ -1,3 +1,3 @@
 # dharmaduta.github.io
 
-Comming soon! 
+Coming soon! 
